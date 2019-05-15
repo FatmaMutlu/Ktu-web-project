@@ -1,1 +1,0 @@
-DUYURU SİTESİ
